@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @poloyy666
+- 👀 I’m interested in ter hiv
+- 🌱 I’m currently learnin The Book Is On The Table
+- 💞️ I’m looking to collaborate on cura do canser
+- 📫 How to fuck me
+- 😄 Pronouns: eu não sei ler 
+- ⚡ Fun fact: eu já bebi leite de macho 
